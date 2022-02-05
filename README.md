@@ -1,4 +1,4 @@
-## Rumours of 2008 game MGS3 remake: what does that entail?
+## [Rumours of 2008 game MGS3 remake: what does that entail?](https://ftw.usatoday.com/2021/10/metal-gear-solid-3-remake-virtuos)
 
 _Diana Zhao dz1371_
 _Feb 4, 2022_
